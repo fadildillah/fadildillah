@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [fadildillah.live](fadildillah.live)
 
-- 📫 How to reach me **fadillahm70@gmail.com**
+- 📫 How to reach me **fadillahm704@gmail.com**
 
 - 📄 Know about my experiences [https://linkedin.com/in/fadildillah](https://linkedin.com/in/fadildillah)
 
